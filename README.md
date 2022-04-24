@@ -13,7 +13,7 @@ How do I work ?<br>
 if you work with your heart and think with your mind everything is possible to do ❤️
 
 Projects, lenguages, my work ?<br>
-💻 I’m currently working at Nestle México, specifically in Data Science (Logistics area)
+💻 I’m currently working at Nestle México as a Data Scientist in Logistics 
 
 💬 Ask me about whatever thing that you want to learn ✌🏻<br>
 🥳 Interesting fact: I love emojis and EDM 😅
